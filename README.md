@@ -33,7 +33,7 @@ I’m always curious to learn from the best and see how world-class teams solve 
 ---
 
 ### 💬 Let's connect!
-[LinkedIn](https://www.linkedin.com/in/maxiliv/) • [Email](mailto:max.r.iliv@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/maxiliv/) • 📧[max.r.iliv@gmail.com](mailto:max.r.iliv@gmail.com)
 
 ---
 
